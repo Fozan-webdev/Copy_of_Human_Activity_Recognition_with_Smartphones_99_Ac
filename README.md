@@ -1,0 +1,1 @@
+# Copy_of_Human_Activity_Recognition_with_Smartphones_99_Ac
